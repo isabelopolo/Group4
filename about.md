@@ -1,7 +1,7 @@
 # Email
 
 1. Grushelika Lynys Avila
- - avilagrushelika2gmail.com
+ - avilagrushelika@gmail.com
 
 2. Luke Alree Egarta
  - egartaluke4@gmail.com
